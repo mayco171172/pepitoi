@@ -1,4 +1,4 @@
-# Delys Nort Snack
+
 =====================
 
 ## Sobre nosotros

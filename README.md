@@ -1,6 +1,6 @@
 
 
-![WhatsApp Image 2024-09-26 at 5.20.07 PM](https://hackmd.io/_uploads/SysuCU70R.jpg)
+
 
 =====================
 
